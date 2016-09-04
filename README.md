@@ -1,2 +1,2 @@
 # FAQ
-Preguntas frecuentes ,pagina web para la  SECRETARIA DE ASUNTOS DOCENTES DE QUILMES. In
+Preguntas frecuentes ,página web para la  SECRETARIA DE ASUNTOS DOCENTES DE QUILMES.
